@@ -8,7 +8,5 @@ olá meu nome é Wislley Ricardo Arantes dos Santos atualmente tenho 15 anos
 -  wislley.santos@escola.pr.gov.br
 
 
-![](https://media1.tenor.com/m/Z42Fo4WKPrQAAAAC/dog-driving.gif)
 
-
-![](https://media1.tenor.com/m/_pSTChwI1mcAAAAd/dbz-goku.gif)
+![](https://media1.tenor.com/m/_pSTChwI1mcAAAAC/dbz-goku.gif)
